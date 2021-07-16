@@ -3,15 +3,16 @@
 
                                             (𝓒𝓪𝓮𝓼𝓪𝓻 𝓬𝓲𝓹𝓱𝓮𝓻 5🔍)
 
-                                              🍒ᴡꜰɴꜱɢᴊᴡᴡᴅ🍒
-
-                                      🦴ʏᴛᴛ ʀꜰꜱᴅ ɢᴛꜱᴊx ɴꜱxɴɪᴊ ᴅᴛᴢᴡ ʜQᴛxᴊʏ 
-
-                                      🔨ᴅᴛᴢ ʏᴍᴛᴢʟᴍʏ ᴅᴛᴢ ɢᴢᴡɴᴊɪ ɪᴊᴊᴜ 
-
-                                      ⌛ɢᴢʏ ʏᴍᴊᴅ ꜱᴊᴀᴊᴡ Qᴊʏ ʀᴊ ʟᴊʏ ꜰ ʀɴꜱᴢʏᴊ ᴛᴋ ᴜᴊꜰʜᴊ 
-
-                                            🌌ᴍᴛʙ ɪᴛ ᴅᴛᴢ xQᴊᴊᴜ? 
+                                               🍒Wfnsgjwwd🍒
+                                               
+                                      Ytt rfsd gtsjx nsxnij dtzw hqtxjy
+                                      
+                                      Dtz ymtzlmy dtz gzwnji ijju
+                                      
+                                      Gzy ymjd sjajw qjy rj ljy f rnszyj tk ujfhj
+                                      
+                                            Mtb it dtz xqjju?
+                                      
 
 
 
