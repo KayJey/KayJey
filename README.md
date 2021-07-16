@@ -39,7 +39,7 @@
 `Wana decypher the above Ceaser Cypher Code or have something intresting to share?🧀`
 >kayjey@protonmail.com
 
-`Here Something for Any one who visits this page  Open the  box !`
+`Here Something for Any one who visits this page  (Click on it to Open the  box) !`
 >[🎁](https://github.com/KayJey/git_test/blob/master/README.md)
 
 
