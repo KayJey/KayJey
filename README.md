@@ -1,4 +1,4 @@
-`read.me underconstruction..🚧🚧` ![vistors](https://visitor-badge.laobi.icu/badge?page_id=KayJey.KayJey) 
+`🚫❗read.me underconstruction..🚧🚧` ![vistors](https://visitor-badge.laobi.icu/badge?page_id=KayJey.KayJey) 
 
 
                                             (𝓒𝓪𝓮𝓼𝓪𝓻 𝓬𝓲𝓹𝓱𝓮𝓻 5🔍)
@@ -38,6 +38,8 @@
 
 `Wana decypher the above Ceaser Cypher Code or have something intresting to share?🧀`
 >kayjey@protonmail.com
+
+
 
 
 
