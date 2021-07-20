@@ -27,6 +27,12 @@
 [![KAY JEY-- Langs](https://github-readme-stats.vercel.app/api/top-langs/?username=KayJey&layout=compact&border_color=2e4058)](https://github.com/KayJey/github-readme-stats)
 
 
+`Currently wokring on`
+> Logistic Regression application
+> https://www.kaggle.com/kayjey/logistic-reg-application
+
+
+
 
 `My Twitter🎫`
 >[Twitter](https://twitter.com/kay97061184)
