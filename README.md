@@ -1,6 +1,13 @@
 `🚫❗read.me underconstruction..🚧🚧` ![vistors](https://visitor-badge.laobi.icu/badge?page_id=KayJey.KayJey) 
 
 
+///
+amshdwdhweqow0qwjdosjxascsdoiwcjxkxmiohq9jbuiwdq
+///
+
+
+
+
                                             (𝓒𝓪𝓮𝓼𝓪𝓻 𝓬𝓲𝓹𝓱𝓮𝓻 5🔍)
 
                                                🍒Wfnsgjwwd🍒
@@ -61,10 +68,6 @@
 
 
 
-
-///
-amshdwdhweqow0qwjdosjxascsdoiwcjxkxmiohq9jbuiwdq
-///
 
 
 
