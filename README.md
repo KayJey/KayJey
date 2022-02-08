@@ -1,4 +1,4 @@
-`🚫❗read.me underconstruction..🚧🚧` ![vistors]() 
+`🚫❗read.me underconstruction..🚧🚧` ![vistors](https://visitor-badge.laobi.icu/badge?page_id=KayJey.KayJey) 
 
 
 ///
