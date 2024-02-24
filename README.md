@@ -1,33 +1,10 @@
 `🚫❗read.me underconstruction..🚧🚧` ![vistors](https://visitor-badge.laobi.icu/badge?page_id=KayJey.KayJey) 
 
 
-///
-amshdwdhweqow0qwjdosjxascsdoiwcjxkxmiohq9jbuiwdq
-///
-
-
-
-
-                                            (𝓒𝓪𝓮𝓼𝓪𝓻 𝓬𝓲𝓹𝓱𝓮𝓻 5🔍)
-
-                                               🍒Wfnsgjwwd🍒
-                                               
-                                      Ytt rfsd gtsjx nsxnij dtzw hqtxjy
-                                      
-                                      Dtz ymtzlmy dtz gzwnji ijju
-                                      
-                                      Gzy ymjd sjajw qjy rj ljy f rnszyj tk ujfhj
-                                      
-                                            Mtb it dtz xqjju?
-                                      
-
-
-
-
                                       
    
    
-`Stats (Coz its a thing on github or somethig !) `
+`Stats (Coz its a thing on github or something !) `
 
 ![MY STATS](https://github-readme-stats.vercel.app/api?username=KayJey&show_icons=true&border_color=2e4058)
 
