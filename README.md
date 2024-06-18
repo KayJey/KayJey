@@ -31,7 +31,7 @@
 >[Twitter](https://twitter.com/kay97061184)
 
 `Read my blogs on!Ⓜ️`
->[Medium](https://18104065-cse.medium.com/)
+>[Medium](https://kayjey.medium.com//)
 
 `Suugest me a book/movie here⤵️`
 >[Telegram](https://t.me/Summer_Moon)
