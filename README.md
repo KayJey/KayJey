@@ -3,6 +3,8 @@
 
 🚀 Data Scientist | AI | Data-Driven | Strategist
 
+# `Assuming correlation implies causation is like assuming rain causes umbrellas to appear. `
+
 💻 Tech Stack
 
 ### Machine Learning & Predictive Analytics
