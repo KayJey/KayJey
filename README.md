@@ -1,5 +1,7 @@
 `Currently wokring wtih`
-LLMs, Dashboards,ETLs,Prefect,Statistical Modelling.
+
+`LLMs` `Langchain` `Vector-DB` `Dashboards` `ETLs` `Prefect` `Statistical Modelling`.
+
 
 ![vistors](https://visitor-badge.laobi.icu/badge?page_id=KayJey.KayJey) 
 
