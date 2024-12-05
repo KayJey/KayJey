@@ -37,6 +37,8 @@ Scalable backend architecture for high-throughput data processing.
 
 
 
+> Currently  Working  > on a `Vector` Data  based `multi` LLM `RAG` app.
+
 ![vistors](https://visitor-badge.laobi.icu/badge?page_id=KayJey.KayJey) 
 
 ![MY STATS](https://github-readme-stats.vercel.app/api?username=KayJey&show_icons=true&border_color=2e4058)
