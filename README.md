@@ -5,6 +5,18 @@
 
 # `Assuming correlation implies causation is like assuming rain causes umbrellas to appear. `
 
+🌐 Domains
+
+Healthcare: Radiology workflows, medical imaging, and diagnostics.
+
+Customer Analytics: Churn prediction, LTV segmentation, and targeted marketing.
+
+Sales & Operations: Workflow automation, client acquisition, and retention strategies.
+
+Finance: Revenue optimization and KPI-driven business insights.
+
+NGO Grant: Grant Author assistance, Data Digitization 
+
 💻 Tech Stack
 
 ### Machine Learning & Predictive Analytics
