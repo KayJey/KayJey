@@ -13,8 +13,7 @@
 ## About
 4+ years taking AI from idea to production across healthcare, marketing and customer success, operations, e-commerce and nonprofit.
 I work end to end: talking to stakeholders, designing the data and model layer, shipping the app, and staying on after launch.
-Based in Bangalore. Active in the Women in Product, Women in AI and Generative AI communities.
-
+Based in Bangalore. Core team member of [Women In Product, Bengaluru](https://womeninproductindia.com/)
 ## Where I've applied it
 | Field | What I built | Stack |
 |---|---|---|
